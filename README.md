@@ -1,0 +1,1 @@
+WEFT app's privacy policy
